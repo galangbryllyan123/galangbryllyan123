@@ -1,4 +1,3 @@
 - 👋 Hi, I’m @galangbryllyan123
-- 
 -IG:KANGGALANG76
 -youtube:https://www.youtube.com/channel/UCUDTixDWpvFLT-eKlnRioFg
